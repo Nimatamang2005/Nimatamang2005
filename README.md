@@ -1,3 +1,6 @@
+<img align="right" height="200" src="https://i.pinimg.com/originals/cb/1c/63/cb1c6387cf11cb2fb34b9e85bb160a59.gif"  />
+
+
 ### Hi! I’m Nima
 Front-End Developer 
 
