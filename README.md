@@ -9,4 +9,3 @@ Reach me at: nimadolmatamang54@gmail.com
 
 
 
-<img src="https://github.com/user-attachments/assets/12c0281f-26ea-4114-8955-bedf116e52fd" align="right">
